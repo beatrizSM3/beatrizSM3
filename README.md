@@ -37,5 +37,5 @@ Desde jan/2025 trabalho no **Agents4Good (KunumiLab)** desenvolvendo soluções 
  
 ## 📫 Contato
  
-[LinkedIn](https://linkedin.com/in/beatriz-de-souza-meneses) · beatriz.souza.meneses@ccc.ufcg.edu.br
+[LinkedIn](https://www.linkedin.com/in/beatriz-de-souza-meneses-403666229/) · beatriz.souza.meneses@ccc.ufcg.edu.br
 
